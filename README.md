@@ -22,6 +22,9 @@
 ![5bc7c4cd](https://github.com/user-attachments/assets/d90967b6-f637-4c17-a8d7-9356c39ce70c)
 ![72dcec79](https://github.com/user-attachments/assets/d6eac42f-7e68-4f18-a862-a265655a7cea)
 ![IMG-6013](https://github.com/user-attachments/assets/37e7daca-acce-42a6-9ba9-adcd04209936)
-${\textsf{\color{#969696}lwk just a dump of dodgy things I've found...why so many marijuana things though..}}$       
+${\textsf{\color{#8DB600}lwk just a dump of dodgy things}}$   
+${\textsf{\color{#8DB600}i've found..}}$  
+${\textsf{\color{#8DB600}many marijuana things tho..}}$       
+${\textsf{\color{#8DB600}"legalize pot!" -George Harrison}}$       
 
                          
