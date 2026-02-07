@@ -29,5 +29,18 @@ ${\textsf{\color{#8DB600}i've found..}}$
 ${\textsf{\color{#8DB600}many marijuana things tho..}}$       
 ${\textsf{\color{#8DB600}"legalize pot!" -George Harrison}}$       
 ![tumblr_0d7409cfd793725f6409b75588e7e35c_16bb3541_250](https://github.com/user-attachments/assets/cde23af7-6e4c-4abe-9b9d-f633ddb6d641)
-
-                         
+<img width="242" height="58" alt="3f8sho" src="https://github.com/user-attachments/assets/095a38da-e3cf-4eb2-9ecf-b1cc710382fc" />
+${\textsf{\color{#8DB600}more photos of my hubby in green}}$       
+ ![16fbcb337b9f64746087a55447d93b38 (1)](https://github.com/user-attachments/assets/9b595a3a-09c6-45d0-9385-b927b70555c6)
+![1gh5ua](https://github.com/user-attachments/assets/d389924f-837b-466e-b0e5-cb0c2944c3bf)
+![f35ff2ffb89d58d7880a9a32f69be987](https://github.com/user-attachments/assets/0513856d-7cfb-4088-9e4b-e296defb24fc)
+![mwu9vb](https://github.com/user-attachments/assets/a82ba275-f4cb-4aff-a049-403bb4c63690)
+![2db4ac365089f52784ff2fba6adc8ec3](https://github.com/user-attachments/assets/e0e15558-3d7f-4671-8f28-6035dc64e90f)
+![o9jh6i](https://github.com/user-attachments/assets/8d94e349-e3b5-4851-b52a-a3a9646df874)
+![d8033c68fb38425060f42f4b9135844a](https://github.com/user-attachments/assets/f9bd9672-7106-4be8-a666-51ab08915251)
+![tumblr_4eb6a9e30fe69555c157a3bf0a53511c_c2a8d761_400](https://github.com/user-attachments/assets/3ef1ba6c-c107-456e-92d3-394e114be64e)
+![772fe745f8d0665957897fc7619d0504](https://github.com/user-attachments/assets/db8e1982-1ee7-4265-a58b-ade9fea2be46)
+![2dggi1](https://github.com/user-attachments/assets/a36823fe-e327-432e-9a36-1867bfc84087)
+![04b909e25685e8c8ac0f01023c02cc8c](https://github.com/user-attachments/assets/f80dcc47-4aa9-4fc5-8990-d9922dd5033a)
+![zou41b](https://github.com/user-attachments/assets/fdfa4d10-3edd-4c38-b3ec-0964a555d9d1)
+                        
