@@ -1,7 +1,7 @@
 <img width="399" height="18" alt="619d75" src="https://github.com/user-attachments/assets/aa6f9b51-584d-4240-a4bd-f718f3d5047e" />
 
 ![85f000f971aa27c306db31d6f2cbc002](https://github.com/user-attachments/assets/a98d0fc0-3cda-4aeb-b8fa-b75a60c88aad)
-
+${\textsf{\color{#8DB600}aw..look at Johnny,}}$ ${\textsf{\color{#8DB600}such a sleepy lad}}$              
 
 ![tumblr_3e49d889559f1645073906164a752a01_d345e628_100 gif](https://github.com/user-attachments/assets/d82ecf27-f29e-495d-a2b7-1f47af1dd156)
 <img width="99" height="56" alt="tumblr_846cc246217649ce772c8be3d9239c99_065c7b13_100" src="https://github.com/user-attachments/assets/f0259db4-0c29-4ade-b737-0da545ff594f" />
